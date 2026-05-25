@@ -43,3 +43,8 @@ Cursor is the world's leading AI code editor, built on top of VS Code. With the 
 
 ## 🔍 SEO Keywords (Tags)
 `cursor promo code` `cursor discount code` `cursor referral code` `cursor coupon 2026` `cursor pro half price` `cursor editor discount` `cursor ai coupon` `get cursor pro free` `cursor activation code` `Cursor优惠码` `Cursor折扣` `Cursor激活码` `Cursor邀请码`
+
+
+## 推荐一个中转站
+有免费额度，够一个月用的。但免费 api 有些慢，可以先试用，认可模型能力了，可以充几块钱转到 vip 线路。
+https://freemodel.dev/invite/FRE-d07729a4
