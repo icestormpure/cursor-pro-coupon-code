@@ -4,10 +4,10 @@ Are you looking for a **Cursor Pro discount code**, **Cursor referral code**, or
 
 Use the official verified referral link below to instantly claim **50% OFF your first month of Cursor Pro**:
 
-👉 **[Click Here to Claim Your 50% Cursor Pro Discount](https://cursor.com/referral?code=UHBAOQDMW6ZM)**
+👉 **[Click Here to Claim Your 50% Cursor Pro Discount](https://cursor.com/referral?code=TMB5HVRAHNX2)**
 
 Alternatively, you can copy and paste this referral code during signup:
-`UHBAOQDMW6ZM`
+`TMB5HVRAHNX2`
 
 ---
 
@@ -15,9 +15,9 @@ Alternatively, you can copy and paste this referral code during signup:
 
 正在寻找 **Cursor Pro 优惠码**、**Cursor 激活码** 或 **Cursor 折扣**吗？点击下方官方推荐链接，即可在订阅 **Cursor Pro 第一个月时直接享受 50%（半价）优惠**：
 
-👉 **[点击这里立即获取 Cursor Pro 半价优惠](https://cursor.com/referral?code=UHBAOQDMW6ZM)**
+👉 **[点击这里立即获取 Cursor Pro 半价优惠](https://cursor.com/referral?code=TMB5HVRAHNX2)**
 
-邀请码/推荐码：`UHBAOQDMW6ZM`
+邀请码/推荐码：`TMB5HVRAHNX2`
 
 ---
 
@@ -34,10 +34,10 @@ Cursor is the world's leading AI code editor, built on top of VS Code. With the 
 
 ## 🛠️ How to Redeem Your Cursor Promo Code
 
-1. Click on the referral link: https://cursor.com/referral?code=UHBAOQDMW6ZM
+1. Click on the referral link: https://cursor.com/referral?code=TMB5HVRAHNX2
 2. Sign up or log into your Cursor account.
 3. Choose the **Pro Plan**.
-4. The **50% discount for the first month** will be automatically applied at checkout thanks to the referral code `UHBAOQDMW6ZM`.
+4. The **50% discount for the first month** will be automatically applied at checkout thanks to the referral code `TMB5HVRAHNX2`.
 
 ---
 
